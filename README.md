@@ -1,1 +1,1 @@
-# Deveshri-Jangale-Portfolio
+# Deveshri Jangale-Portfolio
